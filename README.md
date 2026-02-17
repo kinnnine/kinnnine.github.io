@@ -1,2 +1,0 @@
-# kinnnine.github.io
-portfolio
